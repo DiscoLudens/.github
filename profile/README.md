@@ -1,4 +1,4 @@
-# Welcome to Disco Ludens ✨ - Where Learning Shines Bright
+# Welcome to Disco Ludens ✨
 Step onto the dancefloor of discovery with Disco Ludens, where every beat of knowledge comes alive under the shimmer of a disco ball! Born from the magical fusion of 'Disco' (to learn) and 'Ludens' (to play), our name is a spotlight on our mission: to blend the rhythm of learning with the joy of play. Here, we're not just innovating education technology; we're setting the stage for a learning revolution. Imagine a world where knowledge glitters like a disco ball, where learning and play dance in perfect harmony. That's the dazzling experience we create at Disco Ludens - a place where learners of all ages are the stars on our dancefloor of discovery.
 
 💃🕺 **Step into the spotlight** and join us in a vibrant future where every lesson learned is a disco inferno of fun and engagement.
